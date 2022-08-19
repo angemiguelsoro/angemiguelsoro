@@ -6,7 +6,8 @@
  
  💬 always learn new things
  
- 📫 How to reach me: miguelsoro02@gmail.com
+ 📫 miguelsoro02@gmail.com
  
  😄 Pronouns: SamHackerman😎
+ 
  ⚡ Fun fact: I have time for the one who has mine😁
