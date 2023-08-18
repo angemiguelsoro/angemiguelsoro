@@ -2,7 +2,7 @@
 
  🔭 I’m currently working on some ideas 
  
- 🌱 I’m currently learning HTML/ CSS/ JAVASCRIPT/ UNITY
+ 🌱 I’m currently learning HTML/ CSS/ JAVASCRIPT/ UNITY / Flutter
  
  💬 always learn new things
  
